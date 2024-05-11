@@ -5,4 +5,4 @@ Credits to 05konz
 
 Discord:https://discord.gg/jHjGrrdXP6
 
-Blooket Cheats Plus is coming very soon!
+This cheat is now outdated and will no longer be maintained in favor of Blooket Cheats Plus https://github.com/DannyDan0167/Blooket-Cheats-Plus/
