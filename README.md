@@ -6,5 +6,5 @@ Credits to 05konz
 
 05konz Discord: https://discord.gg/jHjGrrdXP6
 
-New Discord: https://discord.gg/SAHpM8hd
+New Discord: https://discord.gg/8A6J234n7v
 
